@@ -1,3 +1,0 @@
-# AwArBrojict
-zisizAwarBrojict
-## Wa333
